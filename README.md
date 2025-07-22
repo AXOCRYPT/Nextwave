@@ -1,6 +1,6 @@
 
 
-
+man sitting with you grab somethin feels good 
 workingspaceb/w # Nextwave
 Next sea and project coming nb
 vjjc
